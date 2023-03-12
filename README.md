@@ -1,2 +1,2 @@
-# Professioal
+# Professional
 About me portfolio
